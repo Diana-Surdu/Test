@@ -1,3 +1,3 @@
 Hello!!!
 
-Teftelka - is a wonderfull 
+Tephtelika - is a wonderfull cat
